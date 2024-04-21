@@ -1,3 +1,14 @@
+[🔴✅➡️LIVE➡️ KRUSH-EX 2024 VOL.1 2024ライブ](https://worldsportshd.com/jp-boxing1)
+-
+
+[🔴✅➡️LIVE➡️ KRUSH-EX 2024 VOL.1 2024ライブ](https://worldsportshd.com/jp-boxing1)
+-
+
+[🔴✅➡️LIVE➡️ KRUSH-EX 2024 VOL.1 2024ライブ](https://worldsportshd.com/jp-boxing1)
+-
+
+
+
 「Krush-EX 2024 vol.1 in FUKUOKA」4月21日(日)アクロス ...
 3 日前 — 来る4月21日(日)アクロス福岡で開催する「Krush-EX 2024 vol.1 in FUKUOKA」の模様を、K-1公式YouTubeチャンネルにて生配信いたします。
 
